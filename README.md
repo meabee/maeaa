@@ -1,2 +1,1 @@
-# maeaa
-Matbet - Matbet Giriş | Matbet Güncel - Matbet Guncel Giriş
+Matbet, yüksek oranlar, geniş bahis seçenekleri ve güvenilir altyapısı ile kesintisiz oyun keyfi sunan lider online bahis sitesidir.
